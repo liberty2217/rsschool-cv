@@ -1,1 +1,1 @@
-# https://liberty2217.github.io/rsschool-cv/cv/
+# https://liberty2217.github.io/rsschool-cv/
